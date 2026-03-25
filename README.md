@@ -1,6 +1,6 @@
 # ⁺‧₊˚ ཐི⋆ Oii seja bem-vindo ao meu perfil no github ⋆ཋྀ ˚₊‧⁺
 
-![Texto Alternativo](https://i.pinimg.com/736x/4c/7b/fd/4c7bfd065c7872c55a15557dd487abbc.jpg)
+![Texto Alternativo](https://i.pinimg.com/736x/ab/e6/15/abe615dd0897a6e464ab81eb8b1e89db.jpg)
 
 - Eu me chamo Isabelly
 - Faço curso Técnico de Desenvolvimento de Sistemas
