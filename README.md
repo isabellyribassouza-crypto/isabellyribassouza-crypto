@@ -1,4 +1,4 @@
-# ⁺‧₊˚ ཐི⋆ Oii seja bem-vindo ao meu perfil no github ⋆ཋྀ ˚₊‧⁺
+# ⁺‧₊˚ ☣︎ ཐི⋆ Oii seja bem-vindo ao meu perfil no github ⋆ཋྀ ☣︎ ˚₊‧⁺
 
 ![Texto Alternativo](https://i.pinimg.com/1200x/ee/ec/f1/eeecf1b07d7f1be58b7882d378ae6353.jpg)
 
